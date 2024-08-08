@@ -8,6 +8,4 @@
 
 - ### Você pode entrar em contato comigo 📪
 
-carvalhomariani8@gmail.com
-
-@mariani02
+00001137195502SP@al.educacao.sp.gov.br
