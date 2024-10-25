@@ -8,6 +8,6 @@
 
 - ### Você pode entrar em contato comigo pelo e-mail 📪
 
-00001113740486SP@al.educacao.sp.gov.br
+00001137195502SP@al.educacao.sp.gov.br
 
 ![image](https://media.tenor.com/WjRoJjRUSLgAAAAi/hair-flip-disgust.gif)
